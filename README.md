@@ -1,2 +1,2 @@
 # 20230627-Equipo10
-kevin santana 
+kevin santana - Enrique Palomino
