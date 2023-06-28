@@ -1,2 +1,2 @@
-# 20230627-Equipo10
+# Jair Ortega :wolf:
 kevin santana - Enrique Palomino - Jair Ortega - Liyer Villarraga - Sofia ZUleta
