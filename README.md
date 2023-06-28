@@ -1,2 +1,2 @@
 # 20230627-Equipo10
-kevin santana - Enrique Palomino - Jair Ortega
+kevin santana - Enrique Palomino - Jair Ortega - Liyer Villarraga
